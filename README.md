@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...546
 - 😄 Pronouns: ...123
-- ⚡ Fun fact: ...dasdgf
+- ⚡ Fun fact: ...dasdgfsdfsd
 jl
 <!---
 werewlop/werewlop is a ✨ special ✨ repository because its `README.md` (thadsdis file) appears on your GitHub profile.sf
