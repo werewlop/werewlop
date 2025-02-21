@@ -1,6 +1,6 @@
 rrr- 👋 Hi, I’m @werewlop
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...65523bn
+- 🌱 I’m currently learning ...65523bn8462
 - 💞️ I’m looking to collaborate on ...da62666sasd
 - 📫 How to reach me ...546876dsf4532yth1526
 - 😄 Pronouns: ...12378hg151
