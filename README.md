@@ -3,7 +3,7 @@ rrr- 👋 Hi, I’m @werewlop
 - 🌱 I’m currently learning ...65523bn8462nvbvb
 - 💞️ I’m looking to collaborate on ...da62666sasdxcvcxxcfdfd
 - 📫 How to reach me ...546876dsf4532yth1526dssfn,mzxccxz
-- 😄 Pronouns: ...12378hg15163cvvvv354bnv24424
+- 😄 Pronouns: ...12378hg15163cvvvv354bnv24424jhggjh
 - ⚡ Fun fact: ...dasdgfsd87fsd55gjl55253vxcgsdfgb1525233+3+3gfh
 jlsdf623gbg44ml.516fredsdd
 <!---4885gnf5
